@@ -1,0 +1,1 @@
+spotlight background images
